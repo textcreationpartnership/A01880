@@ -35,11 +35,47 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-How superior powers oght to be obeyd of their subiects and wherin they may lawfully by Gods Worde be
+
+1. VVILLIAM VVHITINGHAM TO ALL THEM that loue to knoWe the trueth and foloWe it: Grace and peace.
+
+1. THE PREFACE.
+
 #####Body#####
-How superior powers oght to be obeyd of their subiects and wherin they may lawfully by Gods Worde be
+
+1. CHAP. I. 
+
+1. CHAP. II. 
+
+1. CHAP. III. 
+
+1. CHAP. IIII. 
+
+1. CHAP. V. 
+
+1. CHAP. VI. 
+
+1. CHAP. VII. 
+
+1. CHAP. VIII. 
+
+1. CHAP. IX. 
+
+1. CHAP. X. 
+
+1. CHAP. XI. 
+
+1. CHAP. XII. 
+
+1. CHAP. XIII. 
+
+1. CHAP. XIIII. 
+
+1. CHAP. XV. 
+
 #####Back#####
-How superior powers oght to be obeyd of their subiects and wherin they may lawfully by Gods Worde be
+
+1. WILLIAM KETHE TO the Reader.
+Geue not thy glorie to an other: nether that whiche is profitable for thee, to a ſtrange nation.Baru
 **Types of content**
 
   * There are 76 **verse** lines!
